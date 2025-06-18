@@ -1,1 +1,2 @@
 # miseri-sensei
+おはようございます。
